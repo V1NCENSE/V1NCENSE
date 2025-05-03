@@ -5,4 +5,5 @@
 
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-GRAPHIC AND PFP CREDITS GO TO [AAAQIL](https://www.tumblr.com/aaaqil/782408657534107648/hi-uhmuhmuhm-i-saw-some-of-your-stuff-and-and-they) DFSGDFSGYGDFYUYSGDF TYSMMM ! ! !
+GRAPHIC AND PFP CREDITS GO TO [AAAQIL](https://www.tumblr.com/aaaqil/782408657534107648/hi-uhmuhmuhm-i-saw-some-of-your-stuff-and-and-they) DFSGDFSGYGDFYUYSGDF TYSMMM ! ! !<br>
+<img src="https://static.wikia.nocookie.net/daybreakrblx/images/0/0b/InnateHunger.png/revision/latest/scale-to-width-down/1000?cb=20240714040945">
