@@ -6,4 +6,4 @@
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
 GRAPHIC AND PFP CREDITS GO TO [AAAQIL](https://www.tumblr.com/aaaqil/782408657534107648/hi-uhmuhmuhm-i-saw-some-of-your-stuff-and-and-they) DFSGDFSGYGDFYUYSGDF TYSMMM ! ! !<br>
-<img src="https://static.wikia.nocookie.net/daybreakrblx/images/0/0b/InnateHunger.png/revision/latest/scale-to-width-down/1000?cb=20240714040945">
+<img src="https://media.discordapp.net/attachments/1013237702587580446/1368272348729442446/Untitled9_20250503200519.png?ex=68179e6d&is=68164ced&hm=a5b0b9f47d933d94f967d4aa9a8b125ff8df6c32ac74600cce79d400bd3fa9d2&=&format=webp&quality=lossless&width=407&height=352">
