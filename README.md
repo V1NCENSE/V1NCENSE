@@ -5,4 +5,4 @@
 
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-GRAPHIC CREDITS GO TO [AAAQIL](https://www.tumblr.com/aaaqil/782408657534107648/hi-uhmuhmuhm-i-saw-some-of-your-stuff-and-and-they) DFSGDFSGYGDFYUYSGDF TYSMMM ! ! !
+GRAPHIC AND PFP CREDITS GO TO [AAAQIL](https://www.tumblr.com/aaaqil/782408657534107648/hi-uhmuhmuhm-i-saw-some-of-your-stuff-and-and-they) DFSGDFSGYGDFYUYSGDF TYSMMM ! ! !
