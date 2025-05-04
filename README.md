@@ -1,4 +1,4 @@
-<h1>If you're going to spam follow, please approach me directly. Much appreciated.</h1>
+<h1>If you're going to spam follow, please approach me directly or send a message. Much appreciated.</h1>
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1013237702587580446/1368274575850344489/Untitled9_20250503201427.png?ex=6817a080&is=68164f00&hm=6578c86e6f05526fb9e24d29fff2d2df7585304a01fb234b98f8114874a1af18&=&format=webp&quality=lossless&width=407&height=352">
 <img src="https://64.media.tumblr.com/868541d6c9568e6eefd77338743024e5/b2b5effe22224ecb-db/s2048x3072/8105425b451b80fdfcc21943d0bb981c7c0f24ef.pnj">
