@@ -1,13 +1,12 @@
 <h1>If you're going to spam follow, please approach me directly or send a message. Much appreciated.</h1>
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1013237702587580446/1389753867054612511/Untitled23_20250702024505.png?ex=6865c4a6&is=68647326&hm=81e57c4e2565072739f2ec06ef5a3feb3e250148907ffb6fd5ae28cf390fece6&=&format=webp&quality=lossless&width=1408&height=84">
-<img src="https://media.discordapp.net/attachments/1013237702587580446/1389931881394602127/Untitled21_20250702143245.png?ex=68666a70&is=686518f0&hm=42df952161583fff06b42bf4ff1fd850865e07d4c95fdc9f692197626e239b5b&=&format=webp&quality=lossless&width=1408&height=792">
+<img src="https://media.discordapp.net/attachments/1246490488660557967/1390832450682224771/tumblr_8117bb2fd904c1faa6c702a5f0cdd481_502a7ae5_2048.png?ex=6869b128&is=68685fa8&hm=f8a09e0e1148624d59ede04f9a4aca67413ce5bf39f9ec220bfda9afb310bf04&=&format=webp&quality=lossless&width=1650&height=265">
+<img src="https://media.discordapp.net/attachments/1246490488660557967/1390832451944710185/Untitled36_20250704192857_2.png?ex=6869b128&is=68685fa8&hm=6355cd7c95e02a49e24870acfc40a900b191af32140e1689663050d0fd195f64&=&format=webp&quality=lossless&width=1503&height=846">
 <div align="center"
   
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-LAYOUT BY ME<br>
-MATCHING WITH [THE FREAKSTER](https://github.com/phaexie)<br>
+Layout by my pookie [phaexie](https://github.com/phaexie) :3<br>
 [TUMBLR](https://www.tumblr.com/wiztomfest)
 
-<img src="https://media.discordapp.net/attachments/1013237702587580446/1389753867289235567/Untitled23_20250702024501.png?ex=6865c4a6&is=68647326&hm=2ac8ca18ce1f466dd2aa54856476a8cde5d6ce4275c177fc0645631c5721dfdb&=&format=webp&quality=lossless&width=1408&height=84">
+<img src="https://media.discordapp.net/attachments/1246490488660557967/1390832450682224771/tumblr_8117bb2fd904c1faa6c702a5f0cdd481_502a7ae5_2048.png?ex=6869b128&is=68685fa8&hm=f8a09e0e1148624d59ede04f9a4aca67413ce5bf39f9ec220bfda9afb310bf04&=&format=webp&quality=lossless&width=1650&height=265">
