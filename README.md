@@ -1,2 +1,1 @@
-<h1> im rmking my GitHub soon 💔💔 </h1>
-<h2> old user is back everyone giggles </h2>
+<h1> nah nvm i cant link shit forget it </h1>
