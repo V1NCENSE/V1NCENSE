@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/da7eba7744e6e30cdf68dbb489a5e2d2/74a504aaa211e273-fd/s2048x3072/dc42935fad2845a8352f855ce32f97c579edb1c8.pnj">
 <div align="center"
   
- ☆ Layout made by [wiztomfest](https://www.tumblr.com/wiztomfest/789966271400820736/columbina-rentry-graphics?source=share) (me) ☆
+ ☆ Layout made by [me](https://www.tumblr.com/v1ncense/789966271400820736/columbina-rentry-graphics?source=share)☆
 
  <img src="https://64.media.tumblr.com/e3b166a137ff94c4ddefb52a77dbb110/74a504aaa211e273-f7/s2048x3072/7223fa2367509507c894b5a7c185f9b9bbcc06ce.pnj">
 
