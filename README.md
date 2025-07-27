@@ -13,6 +13,6 @@
 ˗ˏˋ DEMIROMANTIC, BISEXUAL AND GENDERFLUID ! ´ˎ˗<br>
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝
 
-☆ ◜[TUMBLR](https://www.tumblr.com/wiztomfest) ◜☆<br> ☆ ◜[PRONOUNS](https://en.pronouns.page/@VINCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://vinyl.atabook.org/) ◜☆<br> ☆ ◜[RENTRY 1](https://rentry.org/swtdrms) ◜☆<br> ☆ ◜[SECOND RENTRY UNDERWAY] ◜☆
+☆ ◜[TUMBLR](https://www.tumblr.com/v1ncense?source=share) ◜☆<br> ☆ ◜[PRONOUNS](https://en.pronouns.page/@VINCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://vinyl.atabook.org/) ◜☆<br> ☆ ◜[RENTRY 1](https://rentry.org/swtdrms) ◜☆<br> ☆ ◜[SECOND RENTRY UNDERWAY] ◜☆
 
 <img src="https://64.media.tumblr.com/da7eba7744e6e30cdf68dbb489a5e2d2/74a504aaa211e273-fd/s2048x3072/dc42935fad2845a8352f855ce32f97c579edb1c8.pnj">
