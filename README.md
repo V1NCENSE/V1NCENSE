@@ -12,6 +12,7 @@
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[TUMBLR](https://www.tumblr.com/v1ncense) ◜☆<br> ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://vinyl.atabook.org/) ◜☆<br> ☆ ◜[RENTRY](https://rentry.co/undyingmydeimos) ◜☆<br>
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
+☆ ◜[Yapper](https://github.com/phaexie) , [Listener](https://github.com/ToasterTheFox) , [Both](https://github.com/V1NCENSE) ◜☆<br>
 I love my weirdo friends
 
 ![hippo](https://64.media.tumblr.com/bb19d1817eb8a5abb97c2cd399314deb/fc4f743fa9519128-dc/s1280x1920/5879af22d4e13cbe35e5b7502eddd0ecc6d42d46.gifv)
