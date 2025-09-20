@@ -13,4 +13,5 @@
 ☆ ◜[Yapper](https://github.com/phaexie) , [Listener](https://github.com/ToasterTheFox) , [Both](https://github.com/V1NCENSE) ◜☆<br>
 I love my weirdo friends
 
+<img src="https://media.discordapp.net/attachments/1013237702587580446/1418618545985683669/tribbios_userbar.png?ex=68cf6fba&is=68ce1e3a&hm=cf5f22fdd222c2e6c4f6c02b0f16493e0a0d323ae1f3df2afe3eab947a76e183&=&format=webp&quality=lossless&width=385&height=21">
 <img src="https://media.discordapp.net/attachments/1013237702587580446/1418887094159409202/Untitled175_20250920121022.png?ex=68cfc114&is=68ce6f94&hm=944f0db3dc1e126ca96149ad9a17de1bf4296582e4e5b9a1914ee1d9b6784b60&=&format=webp&quality=lossless&width=1408&height=589">
