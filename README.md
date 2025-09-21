@@ -1,6 +1,6 @@
 <p align="center">
 
-<img src="https://media.discordapp.net/attachments/1013237702587580446/1418884126874013716/plain_tribios.png?ex=68cfbe51&is=68ce6cd1&hm=e116579a023199b68cd5a3d9f5f7cca4752d2bfd319e2315029b3c751772d947&=&format=webp&quality=lossless&width=1408&height=792">
+<img src="https://64.media.tumblr.com/4d07312c2b160198979628514b4cc066/958d2c659ee9c16c-46/s1280x1920/35c5ef68bd01ccd2e8183d1aff5cc537aeaae5ac.gifv">
 <img src="https://media.discordapp.net/attachments/1013237702587580446/1418618546694656182/tribbios_userbar_1.png?ex=68cf6fba&is=68ce1e3a&hm=e0ffc6394e499e5d8c82b62034e735b4c9b3e745a1fe6f0b17f283cb88b61a19&=&format=webp&quality=lossless&width=385&height=21">
 <img src="https://media.discordapp.net/attachments/1013237702587580446/1418621736978743499/tribbios_userbar_2.png?ex=68cf72b2&is=68ce2132&hm=384501611979e017ac2552bf0c7f03014793c6d14e4401fb3b27b5be1eb30e03&=&format=webp&quality=lossless&width=385&height=21">
 <div align="center"
