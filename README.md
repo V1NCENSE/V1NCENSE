@@ -8,7 +8,7 @@
  ☆ Layout made by [me](https://www.tumblr.com/check1t/795132776455225344/tribios-tumblr-layout) ☆
 
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
-☆ ◜[TUMBLR](https://www.tumblr.com/check1t) ◜☆<br> ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://vinyl.atabook.org/) ◜☆<br> ☆ ◜[RENTRY](https://rentry.co/undyingmydeimos) ◜☆<br>
+☆ ◜[TUMBLR](https://www.tumblr.com/check1t) ◜☆<br> ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://vinyl.atabook.org/) ◜☆<br> ☆ ◜[REMAKING RENTRY] ◜☆<br>
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[Yapper](https://github.com/phaexie) , [Listener](https://github.com/ToasterTheFox) , [Both](https://github.com/V1NCENSE) ◜☆<br>
 I love my weirdo friends
