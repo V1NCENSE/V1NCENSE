@@ -1,6 +1,6 @@
 <p align="center">
 
-<img src="https://64.media.tumblr.com/4d07312c2b160198979628514b4cc066/958d2c659ee9c16c-46/s1280x1920/35c5ef68bd01ccd2e8183d1aff5cc537aeaae5ac.gifv">
+<img src="https://64.media.tumblr.com/e49ee8c875193e141bbc103e7f3bfb41/563fff322c402c20-df/s1280x1920/582d6bbcee4c0ea9f3072b37824254e2ad8d9204.pnj">
 <div align="center"
 
  ☆ Layout made by [me](https://www.tumblr.com/check1t/795132776455225344/tribios-tumblr-layout) ☆
@@ -10,3 +10,4 @@
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[Yapper](https://github.com/phaexie) , [Listener](https://github.com/ToasterTheFox) , [Both](https://github.com/V1NCENSE) ◜☆<br>
 I love my weirdo friends
+<img src="https://64.media.tumblr.com/68d78d9f538df66158b141b66a25d6db/63c0f6ef5df6bc7b-dc/s1280x1920/d614a3ad5c3ab0c6dc782ebea1d4315525d7b811.pnj">
