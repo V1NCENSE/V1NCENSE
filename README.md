@@ -1,13 +1,12 @@
 <p align="center">
 
-<img src="https://64.media.tumblr.com/e49ee8c875193e141bbc103e7f3bfb41/563fff322c402c20-df/s1280x1920/582d6bbcee4c0ea9f3072b37824254e2ad8d9204.pnj">
+<img src="https://64.media.tumblr.com/ac2a67f3283a3dcd9908dc3d242010e7/da7cb85db30543b1-88/s2048x3072/6d86e5a81eaa0fd907937987f628c2d3c9d95ec6.pnj">
 <div align="center"
 
- ☆ This is my main layout so like ☆
+ ☆ Layout by [kirokumiku](https://www.tumblr.com/kirokumiku/799404072654585856/the-dahlia-honkai-star-rail-themepack) ☆
 
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[TUMBLR](https://www.tumblr.com/check1t) ◜☆<br> ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://v1ncense.atabook.org/) ◜☆<br> ☆ ◜[REMAKING RENTRY] ◜☆<br>
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[Yapper](https://github.com/phaexie) , [Listener](https://github.com/ToasterTheFox) , [Both](https://github.com/V1NCENSE) ◜☆<br>
 I love my weirdo friends
-<img src="https://64.media.tumblr.com/68d78d9f538df66158b141b66a25d6db/63c0f6ef5df6bc7b-dc/s1280x1920/d614a3ad5c3ab0c6dc782ebea1d4315525d7b811.pnj">
