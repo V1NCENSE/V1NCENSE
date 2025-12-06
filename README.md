@@ -1,6 +1,6 @@
 <p align="center">
 
-<img src="https://64.media.tumblr.com/01b00757a75cf8232910c76cc370ad61/7e879ec0a96cfb37-24/s250x400/1898c1f310db183e98cce84e84926fb21d280e52.gifv">
+<img src="https://64.media.tumblr.com/01b00757a75cf8232910c76cc370ad61/7e879ec0a96cfb37-24/s540x810/c0b58cf586b55f775ec3b3c3e5b6847471005969.gifv">
 <div align="center"
 
  ☆ gif from [b1adie](https://www.tumblr.com/b1adie/802096084232159232/if-embracing-fate-is-also-a-form-of-resistance) ☆
