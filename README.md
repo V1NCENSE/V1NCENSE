@@ -1,6 +1,6 @@
 <p align="center">
 
-<img src="https://64.media.tumblr.com/ba46f3eaa0c3e4a75a7baf29a7f7d936/eeb8b8ec1e609db5-2f/s1280x1920/e662058f5773c328255b71563a5db12218b2f615.pnj">
+<img src="https://64.media.tumblr.com/40bfc767c3adacb918afe35ad8939202/eeb8b8ec1e609db5-da/s1280x1920/7fddb54b19972bb2b8c4675829bd5f396ccfff58.pnj">
 <div align="center"
 
  ☆ layout by [idolarchy](https://www.tumblr.com/idolarchy/796495038830034944/%E3%81%A0%E3%81%84%E3%81%97%E3%81%8D%E3%82%85%E3%83%BC%E3%81%A0%E3%81%84%E3%81%97%E3%82%85%E3%81%8D-mizuki-layout) ☆
