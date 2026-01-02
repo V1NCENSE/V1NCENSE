@@ -6,7 +6,7 @@
  ☆ layout by [idolarchy](https://www.tumblr.com/idolarchy/796495038830034944/%E3%81%A0%E3%81%84%E3%81%97%E3%81%8D%E3%82%85%E3%83%BC%E3%81%A0%E3%81%84%E3%81%97%E3%82%85%E3%81%8D-mizuki-layout) ☆
 
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
-☆ ◜[TUMBLR](https://www.tumblr.com/v1ncense) ◜☆<br> ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://v1ncense.atabook.org/) ◜☆<br> ☆ ◜[RENTRY](https://rentry.co/lingeredmemoria) ◜☆<br> ☆ ◜[TREE](https://colormytree.me/2025/01JE6VS1BEMM9WAB9FYZ5FEBBW) ◜☆<br>
+☆ ◜[TUMBLR](https://www.tumblr.com/v1ncense) ◜☆<br> ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://v1ncense.atabook.org/) ◜☆<br> ☆ ◜[RENTRY](https://rentry.co/lingeredmemoria) ◜☆<br>
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[Yapper](https://github.com/phaexie) , [Listener](https://github.com/ToasterTheFox) , [Both](https://github.com/V1NCENSE) ◜☆<br>
 I love my weirdo friends
