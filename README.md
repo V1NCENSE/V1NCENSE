@@ -1,7 +1,9 @@
 <p align="center">
-``𝘔𝘢𝘺𝘣𝘦 𝘐 𝘸𝘢𝘴 𝘣𝘰𝘳𝘯 𝘵𝘰 𝘮𝘦𝘦𝘵 𝘺𝘰𝘶.``
+<div align="center"
 
-<img src="https://file.garden/aOFmDEM02SFxAQG9/shibnahsahs.png">
+𝘓𝘢𝘺𝘰𝘶𝘵 𝘣𝘺 [𝘩𝘣𝘪𝘬𝘪𝘴](https://www.tumblr.com/hbikis/755167180455395328/kanata-rei-and-natsume-ensemble-stars-full)
+
+<img src="https://64.media.tumblr.com/76fbbdcd3f2be8529f8ea24b6827c045/377806f10b456831-2f/s1280x1920/66c54288251a32badcb5b2feca9e9213c0d42321.jpg">
 <div align="center"
  
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
