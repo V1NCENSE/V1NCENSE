@@ -1,9 +1,6 @@
 <p align="center">
-<div align="center"
 
-𝘓𝘢𝘺𝘰𝘶𝘵 𝘣𝘺 [𝘩𝘣𝘪𝘬𝘪𝘴](https://www.tumblr.com/hbikis/755167180455395328/kanata-rei-and-natsume-ensemble-stars-full)
-
-<img src="https://64.media.tumblr.com/76fbbdcd3f2be8529f8ea24b6827c045/377806f10b456831-2f/s1280x1920/66c54288251a32badcb5b2feca9e9213c0d42321.jpg">
+<img src="https://i.pinimg.com/736x/21/cb/6b/21cb6b249b0c4ce7fb5bbb5d969cc8d0.jpg">
 <div align="center"
  
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
