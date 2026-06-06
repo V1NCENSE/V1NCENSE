@@ -1,6 +1,6 @@
 <div align="center"
 
-![](https://komarev.com/ghpvc/?username=V1NCENSE&label=♡&color=f8bcd9)
+![](https://komarev.com/ghpvc/?username=V1NCENSE&label=Observers+♡&color=f8bcd9&abbreviated=true)
  
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://v1ncense.atabook.org/) ◜☆<br> ☆ ◜[⌞PONY TOWN⌝ RENTRY](https://rentry.co/confessionzz) ◜☆<br> ☆ ◜[⌞MAIN⌝ RENTRY](https://rentry.co/The_Grandeur) ◜☆<br>
