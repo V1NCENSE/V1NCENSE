@@ -1,8 +1,8 @@
 <div align="center"
 
-![](https://komarev.com/ghpvc/?username=V1NCENSE&label=Observers+♡&color=f8bcd9&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=V1NCENSE&label=Observers+♡&color=985e5f&abbreviated=true)
 
-![](https://file.garden/aOFmDEM02SFxAQG9/sonnnnnn.png)
+![](https://64.media.tumblr.com/59a78bea75c4e0b3aaf56058c79bc71c/ae00988750fbbf69-c0/s1280x1920/4065bb072ba9ca0934ea7668e0ee06403acee035.pnj)
  
 ⸝⸝⸝⸝───────── ⋆⋅☆⋅⋆ ─────────⸝⸝⸝⸝<br>
 ☆ ◜[PRONOUNS](https://pronouns.cc/@V1NCENSE) ◜☆<br> ☆ ◜[ATA BOOK](https://v1ncense.atabook.org/) ◜☆<br> ☆ ◜[⌞PONY TOWN⌝ RENTRY](https://rentry.co/confessionzz) ◜☆<br> ☆ ◜[⌞MAIN⌝ RENTRY](https://rentry.co/The_Grandeur) ◜☆<br>
